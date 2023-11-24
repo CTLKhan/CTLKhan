@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CTLKhan
+- 👀 I’m interested in Cyber security
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on people to help me follow a good path in the area of ​​cyber security and hacking
+- 📫 How to reach me send DM on Discord
